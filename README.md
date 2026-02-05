@@ -1,1 +1,1 @@
-okuyun işte
+Okumak güzeldir
