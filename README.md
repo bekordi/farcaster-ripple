@@ -1,1 +1,2 @@
 Okumak güzeldir
+yazmak güzeldir
